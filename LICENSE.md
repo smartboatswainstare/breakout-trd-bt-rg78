@@ -1,4 +1,4 @@
-# 
+# premium bot de negociação FTX executor é o melhor bot de negociação FTX executor com alavancagem automática e sniper de liquidação. Seguro, confiável e otimizado para estratégias
 
 
 
